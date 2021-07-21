@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AYUSHAYUSHAGRAWAL
+- 👋 Hi, I’m @AYUSHAGRAWAL
 - 👀 I’m interested in Web Development, App development, Designing and AI
 - 🌱 I’m currently learning Abobe Illustrator
 - 📫 How to reach me: Mobile no. 7974180410
